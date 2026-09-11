@@ -5,4 +5,4 @@ this is the day six : i documenting my gate journey. please be the avidance of m
 this is the day seven: connecting with by project. hii this is to late but still. hello
 this is day 8th of my learning jouney. One step to the closer of aur goal.
 this is day of 9th.Excited to do something big but i dont know how to do that.
-This is day 10th to update my repo.
+This is day 10th to update my repo. Today i develop the react based frontend. but it is not completed yet.
