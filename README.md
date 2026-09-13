@@ -7,4 +7,4 @@ this is day 8th of my learning jouney. One step to the closer of aur goal.
 this is day of 9th.Excited to do something big but i dont know how to do that.
 This is day 10th to update my repo. Today i develop the react based frontend. but it is not completed yet.
 This is day 11th. Of my learning gerney.
-this is day 12th of my learning gearney.
+this is day 12th of my learning gearney. i am very excited of every think.
