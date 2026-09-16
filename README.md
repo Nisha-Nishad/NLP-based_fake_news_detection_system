@@ -10,4 +10,4 @@ This is day 10th to update my repo. Today i develop the react based frontend. bu
 This is day 11th. Of my learning gerney.
 this is day 12th of my learning gearney. i am very excited of every think.
 this is the day 13th . now i reach it.
-this is the day 14th. 
+this is the day 14th. New series are enter here.
