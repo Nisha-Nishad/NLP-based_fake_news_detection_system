@@ -13,3 +13,4 @@ this is the day 13th . now i reach it.
 this is the day 14th. New series are enter here.
 new day an other day of my learning journey.
 this is another day of my learning journey.
+Today the motivation is less but study is continue.
