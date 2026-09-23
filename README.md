@@ -16,3 +16,4 @@ this is another day of my learning journey.
 Today the motivation is less but study is continue bacause time is less and dreams are big. So never stop. be consistent.
 today i fill my one most dream. 
 Now working on my future.
+New day new dream.
