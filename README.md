@@ -17,3 +17,4 @@ Today the motivation is less but study is continue bacause time is less and drea
 today i fill my one most dream. 
 Now working on my future.
 New day new dream.
+Taking the steps towords our goals.
