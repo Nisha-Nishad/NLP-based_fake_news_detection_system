@@ -18,3 +18,4 @@ today i fill my one most dream.
 Now working on my future.
 New day new dream.
 Taking the steps towords our goals.
+starting is hard but when we do it constently with discipline its going to be easy.
