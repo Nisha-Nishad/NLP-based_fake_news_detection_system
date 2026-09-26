@@ -20,4 +20,4 @@ New day new dream.
 Taking the steps towords our goals.
 starting is hard but when we do it constently with discipline its going to be easy.
 so the first step is to start.
-Every day is i changed and take an other steps to our goal.
+Every day is i changed and take an other steps to our goal. but the real change is visibale when i achive my goal.
