@@ -21,3 +21,4 @@ Taking the steps towords our goals.
 starting is hard but when we do it constently with discipline its going to be easy.
 so the first step is to start.
 Every day is i changed and take an other steps to our goal. but the real change is visibale when i achive my goal.
+Each day my mind says take some rest but my dream say if you take rest then you can't reach my goal.
