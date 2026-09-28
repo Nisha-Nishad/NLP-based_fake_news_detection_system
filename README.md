@@ -23,4 +23,4 @@ so the first step is to start.
 Every day is i changed and take an other steps to our goal. but the real change is visibale when i achive my goal.
 Each day my mind says take some rest but my dream say if you take rest then you can't reach my goal.
 so each day is full of fight with our internal thougth and aur goal. I have to choose best option for my self.
-Run towards our goal with the restless.
+Run towards our goal with the restless.but this restless work is very satisfing.
