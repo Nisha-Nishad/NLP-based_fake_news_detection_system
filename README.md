@@ -25,4 +25,4 @@ Each day my mind says take some rest but my dream say if you take rest then you 
 so each day is full of fight with our internal thougth and aur goal. I have to choose best option for my self.
 Run towards our goal with the restless.but this restless work is very satisfing.
 Running closer towards my goal. Nisha Nishad
-Today the motivation is low but the thoughts running in mind "aaj mai har gayi to kal mera future kaisa hoga"... that thought always give me the courage to take step toward my goal.
+Today the motivation is low but the thoughts running in mind "aaj mai har gayi to kal mera future kaisa hoga"... that thought always give me the courage to take step toward my goal. run.....Nisha 
