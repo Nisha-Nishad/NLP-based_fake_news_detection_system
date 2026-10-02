@@ -27,3 +27,12 @@ Run towards our goal with the restless.but this restless work is very satisfing.
 Running closer towards my goal. Nisha Nishad
 Today the motivation is low but the thoughts running in mind "aaj mai har gayi to kal mera future kaisa hoga"... that thought always give me the courage to take step toward my goal. run.....Nisha 
 When i think leave this all thik kya hi karna hai. then i remember my mother face then the enery is going to an stream level...
+.......Taking a rest of one day is a loss of 24 hours.
+
+
+
+
+
+
+
+
