@@ -29,7 +29,7 @@ Today the motivation is low but the thoughts running in mind "aaj mai har gayi t
 When i think leave this all thik kya hi karna hai. then i remember my mother face then the enery is going to an stream level...
 .......Taking a rest of one day is a loss of 24 hours.
  I don't know where my path is leading me, but one thing is clear: I've built the best version of myself.
-
+It's my turn to shine
 
 
 
