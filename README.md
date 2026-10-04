@@ -30,7 +30,7 @@ When i think leave this all thik kya hi karna hai. then i remember my mother fac
 .......Taking a rest of one day is a loss of 24 hours.
  I don't know where my path is leading me, but one thing is clear: I've built the best version of myself.
 It's my turn to shine
-
+...................... 
 
 
 
